@@ -1,4 +1,4 @@
-# Bloxd.io-MidnightTexturePack
+# Voideborne Texture Pack ~ Coming Soon
 I'm making a new texture pack, mainly for myself to make the blocks look like how i like them :D
 ALSO
 UNTIL BLOXD REMOVES THEIR SKIN UPDATE I WILL BE ATTEMPTING TO BRING BACK THE OG SKINS IN THIS TEXTURE PACK
